@@ -1,0 +1,34 @@
+---
+layout: post
+title: Weatherman
+date: 2010-07-12
+---
+"You see, storms have a lot of majestic beauty that really just shows the
+      awesome powers of nature," stated Brunk as he sat down in his chair across from Montano in the
+      apartment.    "Yeah," replied Montano, who was usually quick to agree with
+      him. Montano glanced out the window, which gave a view from such a high vantage point that it
+      could only have been seen from an airplane, to observe a large tornado in the distance. "WHOA!
+      Check out that tornado!" he exclaimed.    Brunk stared at him and then
+      continued speaking once more, but Montano was entranced by the approaching storm.    "Hey, which way is west?" he asked while staring out the window at the storm,
+      which was clearly heading towards them. Brunk continued speaking, ignoring his question. "Hmm,
+      well if the wind is blowing that way, then I guess-" at that point Montano was interrupted by
+      the tornado hitting a nuclear reactor which created an enormous explosion that then began
+      consuming the city he was now somehow flying high above despite being in an apartment
+      building. His eyes widened and he turned to Brunk who was now absent. The metamorphosis was
+      complete, and Montano found himself in a box floating high above an ensuing chain of
+      explosions, each more devastating than the last. He watched in captivated awe as the storm
+      consumed Brunk's building as well as the rest of the city with only himself safe from its
+      devastating reach.    When the worst seemed to be over, Montano steered
+      the floating box down to the street level with his mind and walked out into the disaster area.
+      There was a slight drizzle accompanying the end of the storm, but the sun was already shining.
+      He began wandering around the destroyed homes and fallen trees, completely enthralled by the
+      aftermath of what he had seen. Soon, he heard a small voice:    "Help!
+      Help me!" It seemed to be coming from a car that hadn't been damaged by the storm at all, and
+      Montano ran over to investigate. On the floor of the backseat was a skinny milk maiden who for
+      some reason could not get out.  "Here, crouch down," ordered Montano. She obeyed and
+      he reached in through the windshield and pulled out her frail body from the backseat. She
+      hugged him and ran off.    Montano smiled to himself as he continued his
+      stroll through the wreckage. He kept recalling to mind the huge winds and gigantic explosions
+      he had just witnessed, and how completely awesome they had been as they annihilated the city.
+      Yet one question plagued his mind: why wasn't anyone else around to reminisce with
+      him?

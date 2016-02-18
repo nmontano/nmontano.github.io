@@ -1,0 +1,23 @@
+---
+layout: post
+title: No Confidence
+date: 2010-07-10
+---
+The sun was shining a little too brightly in the park. SAM jogged over to
+      Montano who was kneeling in some mud.    "Hey there, Montano," he began, a
+      fake smile on his face. "Just want to make sure you know that you're coming up to bat real
+      soon."    "Yeah," said Montano with a sigh. "I know." He looked over to
+      the stadium where the pitcher was throwing a bubble to the batter. When it finally was within
+      hitting distance, the batter swung, popping it instantly.    "We just want
+      to be sure that you're all prepared for your turn at bat. You're coming up real soon,"
+      reiterated SAM.    "I know when I'm supposed to bat!"    "Great!" SAM flashed another fake smile. "See you soon!" He ran off.    Montano lifted himself up from the mud. It was obvious that this game meant a lot to SAM,
+      and also that he had little confidence in Montano's athletic and mental capabilities.
+      Disillusioned with everything, Montano decided to go on a walk.    Night
+      fell. Entering the retro lounge, Montano recognized a girl who he had known from somewhere,
+      and approached her as the wall intercom began speaking:    "There is a
+      snow emergency issued for tonight. Please do not call security if you suspect an alien
+      invasion. Thank you."    The girl turned to Montano. "Do you remember last
+      year when everybody called in about an invasion during the blizzard?"    "Yes."    SAM ran in to the lounge:    "Montano-glad I found you. Do you know you're up to bat real soon? I wasn't sure if you
+      knew, so I thought I'd tell you that you should start warming up because you'll have to hit
+      the bubbles when you're at bat-"    "I KNOW I HAVE TO HIT BUBBLES WHEN I'M
+      AT BAT."

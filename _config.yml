@@ -1,0 +1,17 @@
+# Site settings
+title: n montano
+description: >
+    n montano
+author: erik radio
+# email: youemail@gmail.com
+baseurl: "" # the subpath of your site, e.g. /blog
+url: "http://erikradio.github.io" # the base hostname & protocol for your site
+# twitter_username: hybrid_alex
+# github_username:  alexcarpenter
+
+# Build settings
+include: [_pages]
+markdown: kramdown
+permalink: /:year/:month/:title
+sass:
+    style: compressed

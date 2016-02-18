@@ -1,0 +1,37 @@
+---
+layout: post
+title: Castle Abongrijo
+date: 2010-07-29
+---
+The orange city lights blurred by as Montano's car raced over the slight
+      incline, only to brake suddenly at the sight of several toppled semis in the middle of the
+      interstate road. Surely the result of the snowstorm, traffic was backed up now for miles far
+      into the city. Montano got out and observed a body being taken away on a stretcher, a man he
+      thought he knew, whose arms had been folded over his chest. Montano squinted and noticed that
+      the mouth of the body was still moving, saying something silently. A moment later when Montano
+      turned back to look at the body, the man had gotten up and was chatting up the accident with
+      some girl.    The outline of Castle Abongrijo could be seen in high in the
+      distance. Beem, Krood and Montano made their way up the foothills, stopping to catch their
+      breath after a particularly steep incline.    "So, there are two ways you
+      can go now," began Montano. "Through the wheat field, or down the lentil trail through the
+      forest. I wouldn't go that way though, because you won't get there before nightfall, and thats
+      when the horrors come out. I say we go through-"    "Yeah, we know, we
+      know," remarked Beem with an air of boredom. Montano did not appreciate this lack of interest.
+      Didn't they know that he had been to Castle Abongrijo many times? But Montano also knew that
+      Beem was in love with Krood. Montano improvised:    "OK. You two take the
+      lentil trail, and I'll meet you on the other side of the bridge to the castle." With that,
+      Beem handed Montano their two large army overcoats and they began their trek down the viscous
+      trail of cooked lentils.    Montano reached the painted wheat field and
+      struggled greatly as he climbed through a colossal stack of bundled wheat. Upon reaching the
+      other side, he dumped the army coats and began running towards the castle.    He pulled on the switch for the overhead lightbulb, revealing the peeling red paint of
+      the walls of Castle Abongrijo. It was a dump, true, but he had to stay here. As he walked into
+      his sleeping closet, he found a tape adapter and a note from his supervisor:    'Enjoy your stay! You may have company.'    -Alwin Ganes    He entered a larger room and found the remains of some uneaten coleslaw.
+      Horror filled Montano. It was night, and he had never met Beem and Krood at the bridge! But
+      worse, this coleslaw meant that there were other forces in the castle. And to confirm his
+      fears, sinister, unearthly voices started to approach from one of the nearby
+      passageways.      "And that is why people in horror stories go
+      mad. It's because of the mountains!" exclaimed Montano to his grandfather and Merrem,
+      concluding his lengthy discourse. They did not seem convinced.    "Yeah,
+      but at the end of   Dracula  , Jonathan
+      Harker is all like 'I want my teen wishes.'" countered Merrem. "He kills Lucy's sister on the
+      beach."    "I don't remember that part..." said Montano quietly.
