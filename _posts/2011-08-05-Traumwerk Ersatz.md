@@ -3,13 +3,13 @@ layout: post
 title: Traumwerk Ersatz
 date: 2011-08-05
 ---
-<img src="panel1.png" alt="panel1">
-<img src="panel2.png" alt="panel2">
-<img src="panel3.png" alt="panel3">
-<img src="panel4.png" alt="panel4">
-<img src="panel5.png" alt="panel5">
-<img src="panel6.png" alt="panel6">
-<img src="panel7.png" alt="panel7">
+![panel1](panel1.png)
+![panel2](panel2.png)
+![panel3](panel3.png)
+![panel4](panel4.png)
+![panel5](panel5.png)
+![panel6](panel6.png)
+![panel7](panel7.png)
 
 Jack could not stop laughing as he and Montano drove around.     "And so I was standing outside," continued
 Montano, "and I see this easel set up with a big cartoon drawing Petunia made. And I start to
