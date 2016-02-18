@@ -3,7 +3,7 @@ layout: post
 title: Traumwerk Ersatz
 date: 2011-08-05
 ---
-![alt text](https://github.com/nmontano/nmontano.github.io/_posts/panel1.png "Panel 1")
+![alt text](nmontano.github.io/_posts/panel1.png "Panel 1")
 ![panel2](./panel2.png)
 ![panel3](./panel3.png)
 ![panel4](./panel4.png)
