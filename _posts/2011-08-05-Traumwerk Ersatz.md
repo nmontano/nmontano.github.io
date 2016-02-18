@@ -3,9 +3,9 @@ layout: post
 title: Traumwerk Ersatz
 date: 2011-08-05
 ---
----
+...
 ![panel1](./panel1.png)
----
+...
 ![panel2](./panel2.png)  
 ![panel3](./panel3.png)  
 ![panel4](./panel4.png)  
